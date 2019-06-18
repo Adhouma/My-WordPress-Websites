@@ -9,8 +9,6 @@ https://www.otosystem.it
 
 https://bipackcosmetics.it/
 
-https://www.infomap-ambiente.it/
-
 https://www.autoscuolatalamini.it/
 
 https://www.studiodipsiconutrizionejej.it/
